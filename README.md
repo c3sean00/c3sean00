@@ -2,4 +2,4 @@
 
 ### 💻 Computer Science & Software Engineering Student @ OAMK 
 
-**Expected Graduation: December 2027**
+**Expected Graduation: December 2026**
